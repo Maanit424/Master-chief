@@ -1,4 +1,3 @@
-This dish name is tomato curry
 STEP-1:Heat a pan with oil and add some raya,turmeric powder and chopped onion.
 
 STEP-2:After 1 minute add some garlic paste to it.
